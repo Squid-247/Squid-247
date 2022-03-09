@@ -2,7 +2,7 @@
 - 👀 I’m interested in FUCKING YOUR MOM
 - 🌱 I’m currently learning how to FUCK YOUR MOM
 - 💞️ I’m looking to collaborate on FUCKING YOUR MOM
-- 📫 How to reach me 696-969-6969
+- 📫 How to reach me: 696-969-6969
 
 <!---
 Squid-247/Squid-247 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
